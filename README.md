@@ -1,0 +1,1 @@
+# 140W-4070-laptop-vbios
